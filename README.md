@@ -1,3 +1,4 @@
 # jjman2468.github.io
 ## welcome
-### im jihoo
+### i'm jihoo
+#### nice to meet you
